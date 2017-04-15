@@ -2,6 +2,7 @@
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
 
+- [Column Tie V3](https://soundcloud.com/voxjackdotcom/column-tie-v3)
 - [Globofish](https://www.youtube.com/watch?v=QHikS75hmW0)
 - [The Piece of the Void (second track)](https://matthiasheldt.bandcamp.com/album/the-lusatian-wolves)
 - [dead end](https://soundcloud.com/itchyboi/dead-end)
