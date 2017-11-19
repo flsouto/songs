@@ -2,6 +2,7 @@
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
 
+- [Poltergeist](https://soundcloud.com/fieldhack/poltergeist)
 - [Roddo - Duel](https://www.youtube.com/watch?v=Hq6Xpwgn_kk)
 - [Redrum](https://soundcloud.com/callmebproc/redrum-1)
 - [Column Tie V3](https://soundcloud.com/loaband/column-tie-v3)
