@@ -1,6 +1,9 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+
+- [Sid Viscous - Bluehunter](https://soundcloud.com/sid-viscous/bluehunter)
+- [Nic Evennett - Softly](https://soundcloud.com/wingless-night/softly)
 - [Spaced and Buzzin](https://soundcloud.com/user-78730891/spaced-and-buzzin)
 - [InnerEarRecordings](https://www.youtube.com/watch?v=yS0HkVW12rY)
 - [Poltergeist](https://soundcloud.com/fieldhack/poltergeist)
