@@ -2,6 +2,7 @@
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
 
+- [T.R.A.P - GiSerg](https://youtu.be/N85Bvj1rrCg)
 - [Sid Viscous - Bluehunter](https://soundcloud.com/sid-viscous/bluehunter)
 - [Nic Evennett - Softly](https://soundcloud.com/wingless-night/softly)
 - [Spaced and Buzzin](https://soundcloud.com/user-78730891/spaced-and-buzzin)
