@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [RIOT - IKE](https://soundcloud.com/orange-peel-233310155/riot-prod-ike)
 - [Death Called I Hungup - D'afi](https://soundcloud.com/housemau5/deathcalledihungup)
 - [NightShiftMode - Wipion](https://soundcloud.com/user-4593139/nightshiftmode)
 - [T.R.A.P - GiSerg](https://youtu.be/N85Bvj1rrCg)
