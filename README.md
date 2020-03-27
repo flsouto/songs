@@ -1,6 +1,8 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Салочки Колдунчики / Become forged](https://soundcloud.com/wit-selfmade/salochki-koldunchiki-become-forged)
+- [Test Arena 42 - Kyrala (Dark Bass)](https://soundcloud.com/kyrala/underground-kyrala-dark-bass)
 - [Theme of Barovia](https://www.newgrounds.com/audio/listen/920622)
 - [So Sock](https://soundcloud.com/so_sock/7ve925ne)
 - [RIOT - IKE](https://soundcloud.com/orange-peel-233310155/riot-prod-ike)
