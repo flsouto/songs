@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [GiSerg - T.R.A.P](https://youtu.be/N85Bvj1rrCg)
 - [NEW DISORDER by YANN DARKO](https://yann-darko.bandcamp.com/track/new-disorder)
 - [AN AMERICAN PSYCHO (IN NEW ORLEANS) PROD. BY M. BLAZE](https://www.youtube.com/watch?v=ZOFU85bnRYo&feature=youtu.be)
 - [Weird type beat (prod. diebri)](https://www.youtube.com/watch?v=1yKQaw2_s0U&feature=emb_title)
