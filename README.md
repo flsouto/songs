@@ -1,6 +1,8 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [AN AMERICAN PSYCHO (IN NEW ORLEANS) PROD. BY M. BLAZE](https://www.youtube.com/watch?v=ZOFU85bnRYo&feature=youtu.be)
+- [Weird type beat (prod. diebri)](https://www.youtube.com/watch?v=1yKQaw2_s0U&feature=emb_title)
 - [Affinity - Lernen. Ohne. Angst.](https://soundcloud.com/loaband/affinity-in-collaboration-with-fl-souto)
 - [Subjugation - Lernen. Ohne. Angst.](https://soundcloud.com/loaband/subjugation-in-collaboration-with-fl-souto)
 - [Nic Evennet - For the Money](https://soundcloud.com/wingless-night/for-the-money-feat-fl-souto1)
