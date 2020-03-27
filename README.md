@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Theme of Barovia] (https://www.newgrounds.com/audio/listen/920622)
 - [So Sock](https://soundcloud.com/so_sock/7ve925ne)
 - [RIOT - IKE](https://soundcloud.com/orange-peel-233310155/riot-prod-ike)
 - [Death Called I Hungup - D'afi](https://soundcloud.com/housemau5/deathcalledihungup)
