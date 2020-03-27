@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Nic Evennet - For the Money](https://soundcloud.com/wingless-night/for-the-money-feat-fl-souto1)
 - [Салочки Колдунчики / Become forged](https://soundcloud.com/wit-selfmade/salochki-koldunchiki-become-forged)
 - [Test Arena 42 - Kyrala (Dark Bass)](https://soundcloud.com/kyrala/underground-kyrala-dark-bass)
 - [Theme of Barovia](https://www.newgrounds.com/audio/listen/920622)
