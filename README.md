@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Fist Fight - Lil Hel](https://soundcloud.com/mhhn-7156534/fist-fight)
 - [Keep It Hood - WAP](https://soundcloud.com/w_ap/keep-it-hood)
 - [GiSerg - T.R.A.P](https://youtu.be/N85Bvj1rrCg)
 - [NEW DISORDER by YANN DARKO](https://yann-darko.bandcamp.com/track/new-disorder)
