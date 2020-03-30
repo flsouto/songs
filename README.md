@@ -1,6 +1,8 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Чубакка пилотажки / Сhewbacca piloting](https://soundcloud.com/wit-selfmade/chubakka-pilotazhki-shewbacca-piloting)
+- [Dudude - verysd](https://soundcloud.com/verysd/dudude)
 - [Fist Fight - Lil Hel](https://soundcloud.com/mhhn-7156534/fist-fight)
 - [Keep It Hood - WAP](https://soundcloud.com/w_ap/keep-it-hood)
 - [GiSerg - T.R.A.P](https://youtu.be/N85Bvj1rrCg)
