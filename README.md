@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Erster - Erik Thieme](https://soundcloud.com/erik-thieme/erster)
 - [Laylow Type Beat -  Lil Neighbour Set](https://youtu.be/GuAM2kuUg9I)
 - [Чубакка пилотажки / Сhewbacca piloting](https://soundcloud.com/wit-selfmade/chubakka-pilotazhki-shewbacca-piloting)
 - [Dudude - verysd](https://soundcloud.com/verysd/dudude)
