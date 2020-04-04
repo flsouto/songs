@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Evil Shit - prod.sladerr](https://soundcloud.com/sladerr/evil)
 - [Erster - Erik Thieme](https://soundcloud.com/erik-thieme/erster)
 - [Laylow Type Beat -  Lil Neighbour Set](https://youtu.be/GuAM2kuUg9I)
 - [Чубакка пилотажки / Сhewbacca piloting](https://soundcloud.com/wit-selfmade/chubakka-pilotazhki-shewbacca-piloting)
