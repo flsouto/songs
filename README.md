@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Kanye West x A$AP ROCKY x Travis Scott Type Beat - Dxrk ダーク](https://www.youtube.com/watch?v=y58QF12wq0I)
 - [cны Аскета / Ascetic dreams](https://soundcloud.com/wit-selfmade/cny-asketa-ascetic-dreams)
 - [Evil Shit - prod.sladerr](https://soundcloud.com/sladerr/evil)
 - [Erster - Erik Thieme](https://soundcloud.com/erik-thieme/erster)
