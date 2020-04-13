@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Condemned - dxrkphxse](https://soundcloud.com/dxrkphxse/sets/condemned)
 - [Injection - dxrkphxse](https://soundcloud.com/dxrkphxse/injection)
 - [Dark Nightmare - Kamara Delta](http://kamara-delta.com/music/mental/Dark_Nightmare.mp3)
 - [celestial-telegram - followthegood](https://soundcloud.com/followthegood/celestial-telegram)
