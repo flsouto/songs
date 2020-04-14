@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Let's Go Ahead - Llanpsych](https://soundcloud.com/user-78730891/lets-go-ahead-special-cecilia-collab)
 - [Condemned - dxrkphxse](https://soundcloud.com/dxrkphxse/sets/condemned)
 - [Injection - dxrkphxse](https://soundcloud.com/dxrkphxse/injection)
 - [Dark Nightmare - Kamara Delta](http://kamara-delta.com/music/mental/Dark_Nightmare.mp3)
