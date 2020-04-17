@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [La lumière sous la porte, c'est l'horizon des évènements - Laure Roignant](https://alorsalors.bandcamp.com/track/la-lumi-re-sous-la-porte-cest-lhorizon-des-v-nements)
 - [Straws Pulled At Random (Meshuggah Cover) - vrescendo](https://soundcloud.com/vrescendo/straws-pulled-at-random)
 - [Let's Go Ahead - Llanpsych](https://soundcloud.com/user-78730891/lets-go-ahead-special-cecilia-collab)
 - [Condemned - dxrkphxse](https://soundcloud.com/dxrkphxse/sets/condemned)
