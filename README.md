@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [I'm so dizzy - Secret Piano](https://soundcloud.com/secret-piano/im-so-dizzy)
 - [Blue 5 (BLOB)](https://youtu.be/V6zGzkqFC0o)
 - [La lumière sous la porte, c'est l'horizon des évènements - Laure Roignant](https://alorsalors.bandcamp.com/track/la-lumi-re-sous-la-porte-cest-lhorizon-des-v-nements)
 - [Straws Pulled At Random (Meshuggah Cover) - vrescendo](https://soundcloud.com/vrescendo/straws-pulled-at-random)
