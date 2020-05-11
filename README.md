@@ -1,6 +1,8 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [LifeLess - Kazifca](https://soundcloud.com/shea-magill-573399642/lifeless)
+- [Yesterday Mos Cow Rain - Sasha Spirit Radiotayga] (https://soundcloud.com/sasha-spirit-radiotayga/vcherashniy-mayskiy-grom-yesterday-mos-cow-rain)
 - [39 - Blue](https://soundcloud.com/billy-valentin-210313644/piano)
 - [Until Da W - Kazifca](https://soundcloud.com/shea-magill-573399642/until-da-w)
 - [Con - Cock - Ton - Kazifca](https://soundcloud.com/shea-magill-573399642/con-cock-ton)
