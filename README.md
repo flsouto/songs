@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Isolation - Anamaria Miehs](https://www.youtube.com/watch?v=whjHuGetGk0&t=42s)
 - [964.1. Space D](https://www.youtube.com/watch?v=UgIkQsMyudM)
 - [SPACEGHOSTPURRP](https://www.youtube.com/watch?v=gwdKj9kk0WU)
 - [LifeLess - Kazifca](https://soundcloud.com/shea-magill-573399642/lifeless)
