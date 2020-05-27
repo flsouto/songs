@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [ICEBITS - Lone Druid 666](https://www.looperman.com/tracks/detail/216208)
 - [Lelito Meza - Lo curara el tiempo](https://soundcloud.com/leiitomeza/lo-curara-el-tiempo)
 - [Lelito Meza - Sky is Dark](https://soundcloud.com/leiitomeza/sky-is-dark)
 - [Raw Refined - Kazifca](https://soundcloud.com/shea-magill-573399642/raw-refined)
