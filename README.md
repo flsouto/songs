@@ -1,6 +1,8 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [OUTRO - dmchqbeats](https://soundcloud.com/johyn-sylveline)
+- [Muse's whispers - Johyn Sylveline](https://soundcloud.com/johyn-sylveline/muses-whispers)
 - [32 Mesures obscures - Mc Z.E.R.A](https://www.youtube.com/watch?v=-Noz2rXG_ls)
 - [A Time B4 Time - cyberflares](https://youtu.be/zmDw-mifBe4)
 - [So Relaxed - Lil T x Ghoul](https://www.beatstars.com/beat/so-relaxed-prod-lil-t-x-ghoul-4894630)
