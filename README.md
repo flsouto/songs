@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Seven - H0rizOn](https://soundcloud.com/h0rizon9999/seven)
 - [OUTRO - dmchqbeats](https://soundcloud.com/johyn-sylveline)
 - [Muse's whispers - Johyn Sylveline](https://soundcloud.com/johyn-sylveline/muses-whispers)
 - [32 Mesures obscures - Mc Z.E.R.A](https://www.youtube.com/watch?v=-Noz2rXG_ls)
