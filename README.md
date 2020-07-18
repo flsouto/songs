@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Battle Tokyo's Revenge - 67HZ BEATS](https://youtu.be/mjILADRtNfQ)
 - [I'm The Man - Menahh](https://www.youtube.com/watch?v=SclDRn3hl1M)
 - [Seven ft. Maskacapella - H0rizOn](https://soundcloud.com/h0rizon9999/7-featski-maskacapella-prodh0rizon)
 - [Seven - H0rizOn](https://soundcloud.com/h0rizon9999/seven)
