@@ -1,6 +1,8 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Pain - RW12](https://www.youtube.com/watch?v=qC1o1bdYJEQ)
+- [Lullaby from the Apocalypse - Dawn Xiana Moon](https://soundcloud.com/dawnxianamoon/lullaby-from-the-apocalypse)
 - [Sam, This Is You - Skarphet](https://youtu.be/QZ9GB9oisAY)
 - [And He Will Be a Phoenix - Dawn Xiana Moon](https://soundcloud.com/dawnxianamoon/and-he-will-be-a-phoenix)
 - [Battle Tokyo's Revenge - 67HZ BEATS](https://youtu.be/mjILADRtNfQ)
