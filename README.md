@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Dark Fiend - wayudance](https://soundcloud.com/wayudance/dark-fiend)
 - [The Come Up - Prod. Lil T x Andrew Stem](https://www.beatstars.com/beat/the-come-up-prod-lil-t-x-andrew-stem-5561279)
 - [Pain - RW12](https://www.youtube.com/watch?v=qC1o1bdYJEQ)
 - [Lullaby from the Apocalypse - Dawn Xiana Moon](https://soundcloud.com/dawnxianamoon/lullaby-from-the-apocalypse)
