@@ -1,6 +1,8 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Untold Stories - cellFISH](https://soundcloud.com/fabinho-gon-alves/cellfish-untold-stories/s-9yUy4EGOxcn)
+- [back2basic - cellFISH](https://soundcloud.com/fabinho-gon-alves/sets/back2basic/s-w6earupKpai)
 - [Boline - Tyler](https://soundcloud.com/user-419427217-327387098/boline)
 - [օʀʏɖʊʍ ᴛяɪᴘ - zylaq](https://www.youtube.com/watch?v=YI0CnowH5sg&feature=youtu.be)
 - [DOOM - ∑DG3](https://soundcloud.com/drobovik-vs4death/doom)
