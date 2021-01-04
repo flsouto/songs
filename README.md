@@ -1,6 +1,8 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Soul sleep - Wayudance](https://soundcloud.com/wayudance/soul-sleep)
+- [Research Trimmed Neutron - Piercings](https://soundcloud.com/pier_cings/research-trimmed-neutron)
 - [Untold Stories - cellFISH](https://soundcloud.com/fabinho-gon-alves/cellfish-untold-stories/s-9yUy4EGOxcn)
 - [back2basic - cellFISH](https://soundcloud.com/fabinho-gon-alves/sets/back2basic/s-w6earupKpai)
 - [Boline - Tyler](https://soundcloud.com/user-419427217-327387098/boline)
