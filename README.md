@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Natural Blues - CVR](https://lowescompanymusicproductions.com/index.php/c1/video/2887-1331-1-natural-blues-cvr-feat-ninamoody)
 - [The Castle - Club Finland](https://soundcloud.com/clubfinland/the-castle)
 - [Foible - Gac](https://soundcloud.com/kamil-piasek/foible)
 - [The Final Act - Spoils Of Grace](https://spoilsofgrace.bandcamp.com/track/the-final-act)
