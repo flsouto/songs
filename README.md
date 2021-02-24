@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Skip My Funeral - Deeds of Mercy](https://www.youtube.com/watch?v=PbY3rhdefqU&feature=youtu.be)
 - [Natural Blues - CVR](https://lowescompanymusicproductions.com/index.php/c1/video/2887-1331-1-natural-blues-cvr-feat-ninamoody)
 - [The Castle - Club Finland](https://soundcloud.com/clubfinland/the-castle)
 - [Foible - Gac](https://soundcloud.com/kamil-piasek/foible)
