@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [reason of temptation - Polio](https://soundcloud.com/user-719529282/polio-ghostemane-edit)
 - [Soap & Skin - Mr. Gaunt Pt. 1000](https://www.youtube.com/watch?v=ptsbkKCs7FM)
 - [Skip My Funeral - Deeds of Mercy](https://www.youtube.com/watch?v=PbY3rhdefqU&feature=youtu.be)
 - [Natural Blues - CVR](https://lowescompanymusicproductions.com/index.php/c1/video/2887-1331-1-natural-blues-cvr-feat-ninamoody)
