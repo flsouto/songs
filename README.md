@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [The Greatest Curse - reason of temptation](https://soundcloud.com/user-719529282/the-greatest-curse)
 - [reason of temptation - Polio](https://soundcloud.com/user-719529282/polio-ghostemane-edit)
 - [Soap & Skin - Mr. Gaunt Pt. 1000](https://www.youtube.com/watch?v=ptsbkKCs7FM)
 - [Skip My Funeral - Deeds of Mercy](https://www.youtube.com/watch?v=PbY3rhdefqU&feature=youtu.be)
