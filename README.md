@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Robot Motives - Llanpsych](https://soundcloud.com/llanpsych/robot-motives)
 - [I AM A PIG - Spoils of Grace](https://spoilsofgrace.bandcamp.com/track/i-am-a-pig?fbclid=IwAR386Ok-ELyElUqKAD1pHNiDe4v_rBDWsTNOOFGYtfbr0xtaAL74XNUT5Vo)
 - [Boots and Hoes - Sky](https://soundcloud.com/skyx-beats/boots-and-hoes-free-for-non-profit-prodsky)
 - [The Greatest Curse - reason of temptation](https://soundcloud.com/user-719529282/the-greatest-curse)
