@@ -1,6 +1,8 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [The Man With a Brain at the Bottom of his Spine - qoph](https://www.youtube.com/watch?v=16-umvX6OBI)
+- [Cracked Ice - Devilman1269](https://soundcloud.com/devilman1269/cracked-ice)
 - [Robot Motives - Llanpsych](https://soundcloud.com/llanpsych/robot-motives)
 - [I AM A PIG - Spoils of Grace](https://spoilsofgrace.bandcamp.com/track/i-am-a-pig?fbclid=IwAR386Ok-ELyElUqKAD1pHNiDe4v_rBDWsTNOOFGYtfbr0xtaAL74XNUT5Vo)
 - [Boots and Hoes - Sky](https://soundcloud.com/skyx-beats/boots-and-hoes-free-for-non-profit-prodsky)
