@@ -1,6 +1,8 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Be My Dog - Spoils of Grace](https://spoilsofgrace.bandcamp.com/track/be-my-dog-slavery-remix)
+- [D.I.A.N.A - Christian Hembach](https://soundcloud.com/christian-hembach/diana)
 - [The Man With a Brain at the Bottom of his Spine - qoph](https://www.youtube.com/watch?v=16-umvX6OBI)
 - [Cracked Ice - Devilman1269](https://soundcloud.com/devilman1269/cracked-ice)
 - [Robot Motives - Llanpsych](https://soundcloud.com/llanpsych/robot-motives)
