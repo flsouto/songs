@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Шухер ! нас изучают - Radiotayga](https://soundcloud.com/radiotayga-spring-2021/shukher-nas-izuchayut-who-us-research-with-sveta-endless)
 - [CXMV - BLACKLIM3](https://www.youtube.com/watch?v=6GLp2XF7JPY)
 - [Be My Dog - Spoils of Grace](https://spoilsofgrace.bandcamp.com/track/be-my-dog-slavery-remix)
 - [D.I.A.N.A - Christian Hembach](https://soundcloud.com/christian-hembach/diana)
