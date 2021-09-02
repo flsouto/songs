@@ -1,6 +1,7 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Suicide - Ann](https://www.youtube.com/watch?v=UBUIcueOPdI)
 - [135BPM - Haris](https://soundcloud.com/user-635567470/135bpm/s-tw40bto4Rak)
 - [Шухер ! нас изучают - Radiotayga](https://soundcloud.com/radiotayga-spring-2021/shukher-nas-izuchayut-who-us-research-with-sveta-endless)
 - [CXMV - BLACKLIM3](https://www.youtube.com/watch?v=6GLp2XF7JPY)
