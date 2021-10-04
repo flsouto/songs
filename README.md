@@ -1,6 +1,9 @@
 # Songs
 
 Below is a list of songs I have helped creating - this is kept just for my own record.
+- [Electric Whirlwind - Silo Portem](https://soundcloud.com/silo-portem/electric-whirlwind/comment-1508507938)
+- [Don't dance on my grave - Silo Portem](https://soundcloud.com/silo-portem/dont-dance-on-my-grave-2019-05-20-track-23/comment-1508510221)
+- [Kids - .p0l_@r](https://soundcloud.com/p0l_ar/kids-e)
 - [How Could You - Devilman1269](https://soundcloud.com/devilman1269/how-could-you)
 - [Suicide - Ann](https://www.youtube.com/watch?v=UBUIcueOPdI)
 - [135BPM - Haris](https://soundcloud.com/user-635567470/135bpm/s-tw40bto4Rak)
